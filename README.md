@@ -39,7 +39,7 @@ Innaa Nahnu nuhyil mawtaa wa naktubu maa qaddamoo...
 
 **Lesson:** Reminder of accountability.
 
-## Why Recite [Surah Yasin](https://surahyasin.org/surah-yasin/)?
+## Why Recite Surah Yasin?
 
 1. **For the Deceased**  
    - Sunnah to recite for dying/deceased (Ibn Majah 1448)
